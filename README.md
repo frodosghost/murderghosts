@@ -1,2 +1,17 @@
-# murderghosts
-This is a short story about the moors and the horrors of what is in the castles.
+# Murderghosts
+
+This is the source code for a short story called __Murderghosts__. It is licensed under the Creative Commons Attribution-Non Commercial-Share Alike 3.0 license. This story is currently in it's draft format.
+
+## Note
+
+
+
+## Introduction
+
+> And it smiled at me sweetly. Like a ghost that had no lower jaw.
+
+> She led me past a gravestone and pointed. Her long finger cast a faint shadow over the place where the grave was dug. "Samantha McDougall". But that was now, before, when it wasn't so cold.
+
+## Licence
+
+<span xmlns:dc="http://purl.org/dc/elements/1.1/" href="http://purl.org/dc/dcmitype/Text" property="dc:title" rel="dc:type">Murderghosts</span> by <span xmlns:cc="http://creativecommons.org/ns#" property="cc:attributionName">James Rickard</span> is licensed under a <br/> <a rel="license" href="http://creativecommons.org/licenses/by-nc-sa/3.0/">Creative Commons Attribution-NonCommercial-ShareAlike 3.0 Unported License</a>.
