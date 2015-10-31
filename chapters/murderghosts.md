@@ -108,15 +108,18 @@ The flames dancing on the narrow stairway, the flickers covered my shaking hands
 
 “Oh, just over here, by the wall.” She pointed and I tried to follow her hand through the shadows and dark. I wanted to see her parents. Comfort of human voices. There was some shoes on the edge of the light, so I took a few steps closer towards them.
 
-They were not sleeping, nor were they sitting. Two bodies, old flesh clung to the bones of the long-since dead. I dropped the torch. “My parents died on holidays. They were scared by what they found in the Lower Parts.” The light shone against the wall a little less, the flame was starting to flicker out against the cold floor. My shadow danced on the wall, a flickering dim-blackness that faded into the black.
+They were not sleeping, nor were they sitting. Two bodies, old flesh clung to the bones of the long-since dead. I dropped the torch. “My parents died on holidays. They were scared by what they found in the Lower Parts.” The light shone against the wall a little less, the flame was starting to flicker out against the cold floor. My shadow danced on the wall, a flickering dim-blackness that faded.
 
-It was in the last yellow light that I saw the Murderghost, I think it was a Murderghost. It had long arms, that were stretched out towards me, with thin fingers clawing at the end. It had no jaw, only a wordless cry that was the last sound that I take with me in between worlds. A puff of wind, and something cold wrapped around my neck. Long, thin and cold.
+It was in the last of the yellow light that I saw the Murderghost. I think it was a Murderghost. It had long arms, that were stretched out towards me, with thin fingers clawing at the end. It had no jaw, only a wordless cry, a shriek that froze my heart, and welcomed me into eternity. A puff of wind, and I felt the cold wrap around my neck. Long, thin and cold.
 
-“This is my friend, Alisa. She was married to my father’s great grandfather. She was the first be stuck down here.” The girl said, but I couldn’t see her anymore, the shadows consumed everything.
+“This is my friend, Alisa.” The girl said. “She was married to my father’s great grandfather. She was the first be stuck down here.” But I couldn’t see her anymore.
+
+The Murderghost had no eyes. Shadows consumed everything.
 
 A scream started, it sounded like it was from another world.
 
 And then, I could not feel the cold anymore.
+
 
 
 It was not cold anymore.
