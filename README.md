@@ -4,7 +4,7 @@ This is the source code for a short story called __Murderghosts__. It is license
 
 ## Note
 
-Two years ago I was watching (Strip Search)[http://penny-arcade.com/strip-search] and started following (Alexandra Douglass)[http://www.alexandra-douglass.com] on (twitter)[https://twitter.com/Lexxercise]. On 20th July 2013 she posted about (a dream)[https://twitter.com/Lexxercise/status/358510924564414465] she had and followed up with a (drawing)[https://twitter.com/Lexxercise/status/358509248478597120].
+Two years ago I was watching [Strip Search](http://penny-arcade.com/strip-search) and started following [Alexandra Douglass](http://www.alexandra-douglass.com) on [twitter](https://twitter.com/Lexxercise). On 20th July 2013 she posted about [a dream](https://twitter.com/Lexxercise/status/358510924564414465) she had and followed up with a [drawing](https://twitter.com/Lexxercise/status/358509248478597120).
 
 What follows is a short story I wrote with that drawing in mind.
 
